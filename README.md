@@ -7,6 +7,7 @@ FAV PRODUCERS: INABAKUMORI, CHINOZO, IYOWA AND R-906 !
 
 
 FAV VOCALOIDS/UTAUS/CEVIOS/SYNTHV's: Eleanor Forte, Kizuna Akari, Yuzuki Yukari, KAFU, Adachi Rei, Meika Hime, Meika Mikoto, Defoko (Utane Uta), Momone Momo, Kasane Teto, Zundamon, Tohoku Kiritan and Vflower!!
+
 please check my strawpage for more about me !! tyy
 
 SPA/ENG
