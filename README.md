@@ -1,8 +1,14 @@
-# hi ![lz73qh](https://github.com/user-attachments/assets/66f7a5e8-2a70-4474-b778-5bd092a86f67)
+# hihi !!
 
-  <img width="259" height="224" alt="sticker (10)" src="https://github.com/user-attachments/assets/5770cccc-62b6-45ba-94ac-6352dbe5b971" />
-you might find me on pony town idk
 
-												INABAKUMORI, CHINOZO AND IYOWA INT
-cheese cheese cheese
-![SHOOOOVELL](https://github.com/user-attachments/assets/51ec9f19-d420-4a9d-89c4-3f8555b7cb94)
+you might find me on pony town or somewhere else
+
+FAV PRODUCERS: INABAKUMORI, CHINOZO, IYOWA AND R-906 !
+
+
+FAV VOCALOIDS/UTAUS/CEVIOS/SYNTHV's: Eleanor Forte, Kizuna Akari, Yuzuki Yukari, KAFU, Adachi Rei, Meika Hime, Meika Mikoto, Defoko (Utane Uta), Momone Momo, Kasane Teto, Zundamon, Tohoku Kiritan and Vflower!!
+please check my strawpage for more about me !! tyy
+
+SPA/ENG
+
+<img width="218" height="218" alt="image" src="https://github.com/user-attachments/assets/8b7f3aa8-eb1f-4977-bcaf-d0d3e41c8015" />
