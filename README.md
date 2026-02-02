@@ -12,4 +12,17 @@ please check my strawpage for more about me !! tyy
 
 SPA/ENG
 
+
+
+
+
+
+https://github.com/user-attachments/assets/2adce025-474c-4344-8ce9-35fc796b00c3
+
+
+
+
+
+
+
 <img width="218" height="218" alt="image" src="https://github.com/user-attachments/assets/8b7f3aa8-eb1f-4977-bcaf-d0d3e41c8015" />
