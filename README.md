@@ -3,7 +3,7 @@
 
 you might find me on pony town or somewhere else
 
-FAV PRODUCERS: INABAKUMORI, CHINOZO, IYOWA AND R-906 !
+FAV PRODUCERS: Inabakumori, Iyowa, Chinozo, NayutalieN, Atena, 32ki, r-906, Maretu and Sasuke Haraguchi !
 
 
 FAV VOCALOIDS/UTAUS/CEVIOS/SYNTHV's: Eleanor Forte, Kizuna Akari, Yuzuki Yukari, KAFU, Adachi Rei, Meika Hime, Meika Mikoto, Defoko (Utane Uta), Momone Momo, Kasane Teto, Zundamon, Tohoku Kiritan, Vflower, Kaai Yuki, Kagamine Rin and Otomachi Una!!
