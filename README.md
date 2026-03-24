@@ -1,6 +1,7 @@
-# hihi !!
 
+![psd-dude-scrolling-text](https://github.com/user-attachments/assets/397fd91b-76b4-49ca-8dc1-8e7f8ecc309b)
 
+wlc to my profile !
 you might find me on pony town or somewhere else
 
 FAV PRODUCERS: Inabakumori, Iyowa, Chinozo, NayutalieN, Atena, 32ki, r-906, Maretu, Masarada, Namigroove and Sasuke Haraguchi !
