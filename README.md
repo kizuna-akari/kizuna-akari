@@ -7,6 +7,8 @@ https://github.com/user-attachments/assets/3be3ac2d-9b30-4f78-8fb6-e88a93d7e395
   <a href="https://katsu104.straw.page">main strawpage</a> | <a href="https://pronouns.cc/@katsu104">pronouns.cc</a> | <a href="https://en.pronouns.page/@katsu104">pronouns page</a>
 
 <br>
+<br>
+<br>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kv1htbu7y6jw9192j8jzjopxg&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
