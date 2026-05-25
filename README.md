@@ -10,7 +10,7 @@ https://github.com/user-attachments/assets/3be3ac2d-9b30-4f78-8fb6-e88a93d7e395
 <br>
 <br>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kv1htbu7y6jw9192j8jzjopxg&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=121212)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kv1htbu7y6jw9192j8jzjopxg&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=121212)](https://github.com/kittinan/spotify-github-profile)
 
 
 </div>
